@@ -16,8 +16,8 @@
 <br>来源fmfby.CN
 <br>来源ndqry.CN
 <br>来源：plfld.CN
-<br>来源：www.qhvcw.CN
-<br>来源：www.jjqoa.CN
+<br>来源：qhvcw.CN
+<br>来源：jjqoa.CN
 <br>来源：ybyyv.CN
 <br>来源：jowal.CN
 <br>来源：jpory.CN
